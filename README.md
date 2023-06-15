@@ -59,7 +59,7 @@ https://github.com/michwilf/Design-Work/assets/50741250/ab55cbaa-73ef-4078-aaad-
 
 
 
-[Bradfield Centre Report.pdf](https://github.com/michwilf/Design-Work/files/11690426/Bradfield.Centre.Report.pdf)
+![Bradfield Centre Report](https://github.com/michwilf/Design-Work/assets/50741250/47a4f7e0-ea60-4cd4-a9a8-4700d3a7a806)
 
 
 
